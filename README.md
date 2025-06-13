@@ -1,3 +1,4 @@
+![Me, in imagination.](download.png)
 
 
 Hi everyone. I’m a bit of everything. A Jack of all Trades on path becoming a Master of one trade! 
